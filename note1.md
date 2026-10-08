@@ -1,0 +1,1 @@
+Them 1 note cho B goi la gio hang
